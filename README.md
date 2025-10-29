@@ -1,3 +1,4 @@
+![IMG_7943](https://github.com/user-attachments/assets/cbc3483d-5284-43d4-82e8-c8a103671cf2)
 
 ## yoo!
 welcome to my github..ignore how shit it looks im trying to make it look better i swear.
@@ -8,7 +9,6 @@ i need more pony town friends don't be scared to interact...i dont bite..i think
 
 dni people under 10. i don't like talking to little kids.
 
-<img width="735" height="474" alt="6685c5315666aa8206bb8af220de5486" src="https://github.com/user-attachments/assets/97d47f18-a4eb-41c0-9744-2936a3f28f37" />
 
 
 im a huuugeee sucker for one wheat mark and homestuck so usually hang out with friends near the homestuck area or just around the map but sometimes making island maps for friends. 
