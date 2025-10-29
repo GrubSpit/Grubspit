@@ -1,4 +1,4 @@
-![d5898ee067f7b3ec8645ce0d408724f3](https://github.com/user-attachments/assets/dd7f3358-5625-4378-9541-434f69442e5f)
+
 ## yoo!
 welcome to my github..ignore how shit it looks im trying to make it look better i swear.
 
@@ -8,3 +8,4 @@ Anyway info: My names keith, i am a man so..yeah obviously he/him
 
 dni people under 10. 
 
+<img width="735" height="474" alt="6685c5315666aa8206bb8af220de5486" src="https://github.com/user-attachments/assets/97d47f18-a4eb-41c0-9744-2936a3f28f37" />
