@@ -13,4 +13,4 @@ dni people under 10. i don't like talking to little kids.
 
 im a huuugeee sucker for one wheat mark and homestuck so usually hang out with friends near the homestuck area or just around the map but sometimes making island maps for friends. 
 
-I dont have a dni. int everyone i literally dgaf
+I dont have a dni. int everyone i literally dgaf..except KIDS. kids dni dni dni ughh i hate you all
