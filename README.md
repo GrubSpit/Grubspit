@@ -1,3 +1,4 @@
+![d5898ee067f7b3ec8645ce0d408724f3](https://github.com/user-attachments/assets/dd7f3358-5625-4378-9541-434f69442e5f)
 ## yoo!
 welcome to my github..ignore how shit it looks im trying to make it look better i swear.
 
@@ -7,4 +8,3 @@ Anyway info: My names keith, i am a man so..yeah obviously he/him
 
 dni people under 10. 
 
-https://static.wikia.nocookie.net/one-wheat-mark/images/3/39/Site-community-image/revision/latest?cb=20250723173806
