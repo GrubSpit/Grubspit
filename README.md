@@ -3,6 +3,9 @@
 ## yoo!
 welcome to my github..ignore how shit it looks im trying to make it look better i swear.
 
+if you see me follow you its because i think your cool! 
+
+
 Anyway info: My names keith, i am a man so..yeah obviously he/him
 
 i need more pony town friends don't be scared to interact...i dont bite..i think
