@@ -18,13 +18,5 @@ im a huuugeee sucker for one wheat mark and homestuck so usually hang out with f
 
 
 
-before i wrap this up id like to say something about my friend @GrimGitz. he has NOT copied anyones ponies and i have PROOF. 
-
-![IMG_7946](https://github.com/user-attachments/assets/2b03f20e-9b29-4c85-9be6-6c569666533e)
-
-As you can see this is the one people THINK he copied. I'm just going to spit the proof that they are both different because im tired of people always annoying him. this is his one:
-![IMG_7947](https://github.com/user-attachments/assets/263301fc-43b0-4674-994d-0b580c0428c3) i stand my case. They are different. please stop harassing him whispering shit like: "you literally copied my friends ponies!" "they look exactly the saaaammee!" no shit. you cosplayed the SAME character. god forbid that your ponies have the same clothes because yeah dipshit the character is wearing that. ok bye argue with a brick wall for all i care.
-
-
 
 ![d5898ee067f7b3ec8645ce0d408724f3](https://github.com/user-attachments/assets/afe98959-d689-478e-b8d1-34d85d96ab52)
