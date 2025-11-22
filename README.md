@@ -1,5 +1,7 @@
 ![IMG_7943](https://github.com/user-attachments/assets/cbc3483d-5284-43d4-82e8-c8a103671cf2)
 
+hi read this or whatever but my prounouns page has kinda more info and it has my strawpage linked since i got rid of the strawpage link in my desc
+
 ## yoo!
 welcome to my github..ignore how shit it looks im trying to make it look better i swear.
 
