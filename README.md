@@ -5,6 +5,7 @@ welcome to my github..ignore how shit it looks im trying to make it look better 
 
 if you see me follow you its because i think your cool! 
 
+look at pronouns page for more info bc my strawpage is linked on there and shit
 
 Anyway info: My names keith, i am a man so..yeah obviously he/him
 
