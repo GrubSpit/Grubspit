@@ -1,8 +1,11 @@
 ![IMG_7943](https://github.com/user-attachments/assets/cbc3483d-5284-43d4-82e8-c8a103671cf2)
 
+
+![](https://komarev.com/ghpvc/?username=Grubspit&color=grey)
+
 hi read this or whatever but my prounouns page has kinda more info and it has my strawpage linked since i got rid of the strawpage link in my desc.
 
-edit: hello yes, can we stop acusing my friend of copying peoples ponies. acting real snobby and annoying. he didn't copy your ponies lol kinda pathetic tbh...
+
 
 ## yoo!
 welcome to my github..ignore how shit it looks im trying to make it look better i swear.
