@@ -7,7 +7,7 @@ hi read this or whatever but my prounouns page has kinda more info and it has my
 
 
 
-## yoo!
+## hello!
 welcome to my github..ignore how shit it looks im trying to make it look better i swear.
 
 if you see me follow you its because i think your cool! 
@@ -26,5 +26,4 @@ im a huuugeee sucker for one wheat mark and homestuck so usually hang out with f
 
 
 
-
-![d5898ee067f7b3ec8645ce0d408724f3](https://github.com/user-attachments/assets/afe98959-d689-478e-b8d1-34d85d96ab52)
+![](https://64.media.tumblr.com/bb360aaef2359d390fa704ac53c278ac/ea7d2207a691971c-
