@@ -1,9 +1,10 @@
-![IMG_7943](https://github.com/user-attachments/assets/cbc3483d-5284-43d4-82e8-c8a103671cf2)
+![IMG_8039](https://github.com/user-attachments/assets/7dbc5b1b-31d1-439f-9a55-94961e2cddbb)
 
 
 ![](https://komarev.com/ghpvc/?username=Grubspit&color=grey)
 
-hi read this or whatever but my prounouns page has kinda more info and it has my strawpage linked since i got rid of the strawpage link in my desc.
+![](https://64.media.tumblr.com/bb360aaef2359d390fa704ac53c278ac/ea7d2207a691971c-02/s500x750/b6e628f16ccfbc0fa96f8cb2409b386a13e1afec.gifv)
+![](https://64.media.tumblr.com/3c73199fa566c7d83b3dae7fa7967c3f/ea7d2207a691971c-94/s1280x1920/b10cf0f65b30d6e44754a678f5e79ccfa8d0de43.gifv)
 
 
 
