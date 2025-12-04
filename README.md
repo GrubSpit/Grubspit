@@ -26,4 +26,5 @@ im a huuugeee sucker for one wheat mark and homestuck so usually hang out with f
 
 
 
-![](https://64.media.tumblr.com/bb360aaef2359d390fa704ac53c278ac/ea7d2207a691971c-
+![](https://64.media.tumblr.com/bb360aaef2359d390fa704ac53c278ac/ea7d2207a691971c-02/s500x750/b6e628f16ccfbc0fa96f8cb2409b386a13e1afec.gifv)
+![](https://64.media.tumblr.com/3c73199fa566c7d83b3dae7fa7967c3f/ea7d2207a691971c-94/s1280x1920/b10cf0f65b30d6e44754a678f5e79ccfa8d0de43.gifv)
