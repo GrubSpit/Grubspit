@@ -13,13 +13,12 @@ welcome to my github..ignore how shit it looks im trying to make it look better 
 
 if you see me follow you its because i think your cool! 
 
-look at pronouns page for more info bc my strawpage is linked on there and shit
 
 Anyway info: My names keith, i am a man so..yeah obviously he/him
 
 i need more pony town friends don't be scared to interact...i dont bite..i think
 
-dni people under 10. i don't like talking to little kids.
+dni people under 13. i don't like talking to little kids.
 
 
 i am always sitting with hunter @/zombieeboy unless i am waiting for him to join.
